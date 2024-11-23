@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **mayank444ns@gmail.com**
 
-**I am a tech enthusiast.**
+-**I am tech enthusiast.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
